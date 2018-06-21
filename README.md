@@ -1,2 +1,3 @@
 # PSG
-resumenes de PSG para aprobar PSG gegege
+vaya mierda de asignatura
+que puto asco
